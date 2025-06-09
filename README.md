@@ -10,7 +10,7 @@
 
 ![WhatsApp Image 2025-06-09 at 8 16 56 AM (2)](https://github.com/user-attachments/assets/680e1174-52b4-4c0b-a6ba-c859889f7aa9)
 <br><br>
-If Offline
+<b>If Offline</b>
 <br><br>
 
 ![WhatsApp Image 2025-06-09 at 8 19 37 AM](https://github.com/user-attachments/assets/5ca225e7-5d2f-4173-a661-4a5e05fe8833)
